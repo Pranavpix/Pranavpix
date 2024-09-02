@@ -2,7 +2,7 @@
 - 👀 I’m interested in creep
 - 🌱 I’m currently learning bhasha
 - 💞️ I’m looking to collaborate with my constant!💕
-- 📫 How to reach me 7756******🌚
+- 📫 How to reach me likho 7756******🌚
 - 😄 Pronouns: BABDYA
 - ⚡ Fun fact: Taken by computer💕💍
 
